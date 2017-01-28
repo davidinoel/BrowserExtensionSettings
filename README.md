@@ -1,0 +1,5 @@
+Consider these released under the "Non-Commercial Flexitarian License". If you are involved in any of these projects, related ones, and or have issues with the licensing, please contact me at my username at gmail.
+
+While I'm primarily a Software Entreprenuer and Small Business Owner, with expertise in the areas of: Network Architecture, Systems Admininistration, Software Architecture, Software Development, Code Auditing, QA, Design, UI, UX, User Engagement and Retenton, On and Off-site Project Management and Team Lead, Product Management, Sales Lead, Marketing Head, Customer Support, and on, I do--out of unfortunate necessity--also do a fair amount of security-related work.
+
+I also freelance, and am always looking for business partners to assist in building out my never-ending list of projects, so if anything you find here strikes you as a fairly good idea--keeping in mind that these are the freebies I'm giving out publicly--and you have any interest in more profitable projects, please feel free to get in touch at my u s er na me at g m a il.
